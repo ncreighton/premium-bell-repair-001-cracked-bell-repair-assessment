@@ -1,0 +1,2 @@
+# premium-bell-repair-001-cracked-bell-repair-assessment
+Every cracked bell tells a story—but does your repair assessment tell the full picture? Most foundries track damage haphazardly, missing critical structural details that determine whether a bell can be saved or should be retired.  The Cracked Bell Repair Assessment Template transforms your bell evaluation process from guesswork into systematic docu
